@@ -1,1 +1,1 @@
-[![TYPING SVG]-_-}]
+[![TYPING SVG]-_-]
